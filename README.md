@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 5th, 2026 (Psalm 9:12, NKJV):
+> ✞ **"When he maketh inquisition for blood, he
+> remembereth them: he forgetteh not the cry of the
+> humble."**
+
 ## Bible verse for September 4th, 2026 (Hosea 9:17, NKJV):
 > ✞ **"My God will cast them away, because they did not obey Him;
 > And they shall be wanderers among the nations."**
