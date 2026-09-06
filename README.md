@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 6th, 2026 (Proverbs 28:25, NKJV):
+> ✞ **"He who is of a proud heart stirs up strife,
+> but he who trusts in the Lord will be prospered."**
+
 ## Bible verse for September 5th, 2026 (Psalm 9:12, NKJV):
 > ✞ **"When he maketh inquisition for blood, he
 > remembereth them: he forgetteh not the cry of the
