@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 7th, 2026 (Jeremiah 2:31, NKJV):
+> ✞ **"O generation, see the word of the Lord!
+> Have I been a wilderness to Israel, or a land of darkness?
+> Why do my people say, 'We are lords; we will come no more to you'?"**
+
 ## Bible verse for September 6th, 2026 (Proverbs 28:25, NKJV):
 > ✞ **"He who is of a proud heart stirs up strife,
 > but he who trusts in the Lord will be prospered."**
