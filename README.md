@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 8th, 2026 (Psalm 102:12, NKJV):
+> ✞ **"But you, O Lord, shall endure forever,
+> And the remembrance of Your name to all generations."**
+
 ## Bible verse for September 7th, 2026 (Jeremiah 2:31, NKJV):
 > ✞ **"O generation, see the word of the Lord!
 > Have I been a wilderness to Israel, or a land of darkness?
